@@ -1,1 +1,1 @@
-last of the day
+start of the day
