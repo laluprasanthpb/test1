@@ -1,1 +1,1 @@
-start of the day
+second friday
